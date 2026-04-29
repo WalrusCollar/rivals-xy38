@@ -1,4 +1,4 @@
-
+rivals Scripts top is the best rivals Script, featuring auto-upgrade and instant win. Safe and powerful for all your needs.
 
 
 
